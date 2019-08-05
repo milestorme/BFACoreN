@@ -1,4 +1,4 @@
-![bfalogo](http://lvgames.info/wp-content/uploads/2018/11/5a71792bae653ab14b505982.jpg)
+![bfalogo](https://b1.gmbox.ru/c/150806.815xp.jpg)
 
 
 
